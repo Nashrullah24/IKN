@@ -1,0 +1,2 @@
+# IKN
+ngabisin duit
